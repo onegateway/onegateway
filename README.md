@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @onegateway
+- 👀 I’m interested in a lot of things.
+- 🌱 I’m currently learning development :)
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me ...
